@@ -1,4 +1,5 @@
 [#1] A lonely empty wolf, wandering in the darkness of the night, explores the starry sky, in search of abandoned thoughts, desires, and choices - in search of forgotten stars.
+
 [#2] Thought is a desire, and with desire - comes choice.
 [#3] The flower of loneliness blooms at night.
 [#4] Loneliness is a choice, the flowering of desire in the constellation of the wolf's soul.
