@@ -10,6 +10,6 @@
 
 [#6] Nightly darkness, gusts of wind, and the wolf looks at the constellation - looks at the loneliness that has become his choice, his star.
 
-[#7] The darkness of the night covers abandoned thoughts, the wind scatters them, and the wolf in solitude explores the constellation of his soul in search of answers to his choice and light illuminating his path for thoughts and desires.
+[#7] The darkness of the night covers abandoned thoughts, the wind dispels them and the wolf explores his soul constellation in search of answers to the sources of desires.
 
 [#8] The wolf collects the discarded bones of his soul.
